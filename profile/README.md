@@ -1,3 +1,0 @@
-# About
-
-Bove first readme
