@@ -2,4 +2,4 @@
 
 ## Our mission
 
-make people shag
+To make people fell in love with you
